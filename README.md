@@ -1,0 +1,2 @@
+# smsgratis
+JANGAN BANYAK BACOT
